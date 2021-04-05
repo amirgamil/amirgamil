@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name’s Amir and I’m a sophomore at Georgia Tech who is passionate about entrepreneurship, building, and thinking
+My name’s Amir and I’m a sophomore at Georgia Tech who likes about entrepreneurship, building, and thinking
 
 A quick highlight reel — in the past, I’ve:
 
