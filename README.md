@@ -1,2 +1,2 @@
-professional noob + artificially intelligent   
+artificially intelligent   
 say [hi](https://twitter.com/amirbolous)
